@@ -13,5 +13,4 @@ it was 3 am when i did this
 
 
 <p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=macha010010&show_icons=true&locale=en" alt="machalolxp" /></p>
-
-bottom g
+IVE PLAYED THESE GAMES BEFORE
